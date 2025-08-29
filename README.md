@@ -5,3 +5,5 @@ here's more about me:
 i like dinosaurs (u could tell by the status emoji) I'm socially awkward but i try to be interactive
 
 I'm a foreigner, which means English isn't my first language so there'd maybe some mistakes 👍
+
+Also I'm a hardcore My Chemical Romance and Homestuck fan.
